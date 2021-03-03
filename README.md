@@ -1,1 +1,1 @@
-## Welcome to "My Story world"
+## Welcome to "The world of stories"
